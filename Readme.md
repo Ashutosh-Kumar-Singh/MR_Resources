@@ -1,0 +1,1 @@
+Here you can find all the links to useful resources that MR team makes use of.
